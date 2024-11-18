@@ -1,0 +1,36 @@
+**Introduzione**
+Dante nasce a Firenze nel 1265 d.C., durante la lotta intestina tra guelfi (fazione papale) e ghibellini (fazione imperiale), a loro volta i guelfi erano divisi tra bianchi e neri, e Dante fu un Guelfo bianco. Dante durante la sua vita ebbe numerose cariche politiche nella sua città, ed ebbe come suo nemico il papa di allora: Bonifacio VIII, che lo mandò in esilio a causa di questa sua inimicizia col poeta. Per contrastare il malcontento cittadino di questo esilio Bonifacio per ben due volte gli permette di rientrare a Firenze sotto alcune condizioni che Dante rifiuta entrambe le volte. Per questo Dante fu costretto a girare di corte in corte, e durante questo tempo di vagabondaggio scrisse la "Divina Commedia". 
+
+**Titolo**
+Dante la chiamò solamente "Commedia", sappiamo questo grazie ad una lettera scritta dal poeta all'allora signore di Verona, dove esprime la volontà di dedicare a lui la sua "Commedia". Il termine "divina" gli fu attribuito da Boccaccio, che fu incaricato di commentare l'opera dal comune di Firenze. 
+
+**Datazione**
+Dante inizia a scrivere la Divina Commedia nel 1306, e finisce di scriverla nel 1321, anno della sua morte. L'inferno iniziò a scriverlo nel 1306, anno del suo esilio, e impiega tre anni per finirlo, dal 1306 al 1309. Questa datazione è possibile grazie ai contenuti della cantica stessa che trattano di avvenimenti accaduti tra il 1306 e il 1309 appunto. Il purgatorio finisce di scriverlo nel 1313, la datazione è possibile per lo stesso motivo per cui facciamo risalire l'inferno al 1309. Il paradiso finisce di scriverlo qualche mese prima della sua morte, nel 1321. 
+
+**Protagonista**
+Dante è il narratore di primo grado (i narratori di altro grado sono quelli che narrano le storie, tipo Paolo e Francesca), nonché il protagonista, poi come protagonista "secondario" abbiamo Virgilio, che rappresenta la ragione. Questo si trova nel limbo, poiché è vissuto prima della nascita di Cristo, ma non ha commesso alcun peccato. Beatrice, altra protagonista "secondaria", guida Dante nel paradiso, ed è il simbolo della filosofia, però illuminata dalla fede.
+
+**Contenuto**
+Lo scopo della Divina Commedia per Dante è la scelta e la ricerca della verità, ovvero accontentarsi di quel che si ha con la convinzione che non si può andare oltre il volere di Dio, confidando nella divina provvidenza, attraverso il quale Dio si interfaccia con l'uomo. Per Dante infatti la ragione umana è limitata e quindi bisogna ad un certo punto confidare ed affidarsi al volere di Dio.
+
+**Spazio**
+L'inferno dantesco è una voragine che si trova sotto terra, in particolare sotto la città di Gerusalemme. La voragine fu creata dalla caduta di Lucifero sulla Terra, però nemmeno la terra volle toccare Lucifero rigettato da Dio e quindi questa si aprì creando questa voragine che è ora l'inferno, mentre la terra che era rimasta da questa apertura si andò ad accumulare creando poi il purgatorio, che si trova sotto l'inferno. Questa idea dell'inferno e del purgatorio viene da Aristotele, che poneva Gerusalemme al centro del mondo, e come estremi dello stesso poneva le colonne d'Ercole a sinistra (limite del mondo conosciuto) e il Gange a destra (che veniva identificato come l'estremo est, dove sorge il sole). Una volta arrivato alla fine dell'inferno Dante per arrivare al purgatorio si attacca ai peli di Lucifero e arriva fino ai piedi percorrendo la "natural burella", ovvero il buco oltre il quale si trova il purgatorio. Dante una volta arrivato nel purgatorio si getta nel fiume Lete, che arriva nel mare che circonda il purgatorio. Il purgatorio è al contrario rispetto all'inferno ed è praticamente un'isola, formata appunto dalla terra che si era spostata per far discendere Lucifero nelle profondità della Terra, creando l'inferno. In cima al purgatorio poi si passa al paradiso, con i nove cerchi angelici. Dante per tutta l'opera, quindi, tende sempre a salire, avvicinandosi verso Dio. Anche quando "discende negli inferi" lui tecnicamente sta salendo verso il purgatorio, creando una metafora di un cammino di redenzione e purificazione. 
+
+**Tempo**
+Il viaggio di Dante dura 7 giorni, iniziando l'otto aprile del 1300 (venerdì santo, morte di Gesù sulla croce) e finendo il quindici di aprile, arrivando nel purgatorio la domenica mattina, e nel paradiso il mercoledì. Il fatto che l'opera duri una settimana fa riferimento alla creazione del mondo da parte di Dio. La scelta di quest'anno è data dal fatto che quell'anno il nemico di Dante, Bonifacio VIII, istituì il giubileo, ancora oggi praticato. L'antipatia di Dante per Bonifacio VIII arriva a così grandi misure che pone nell'Inferno Celestino V, colui che rinunciò alla carica di papa dopo un mese, facendo così salire al papato Bonifacio VIII.
+
+**Pluralità di lingue**
+In ogni cantico vediamo un cambiamento di stile e tematiche, in base al luogo in cui il poeta si trova. Ad esempio, nell'inferno Dante ci descrive un luogo buio, pieno di anime condannate, in pena, peccatrici e che sono punite malamente per questo. Il registro e il linguaggio cambia, poi, nel purgatorio, dove appunto le anime sono in redenzione e quindi il poeta non può utilizzare caratteri altrettanto volgari, il linguaggio quindi è più forbito. Nel paradiso, invece, il linguaggio è prettamente aulico, umile ecc... e quindi per questo impiega molto più tempo per scrivere il paradiso. La Divina Commedia, è poi un poema, poiché è scritta in versi, ma è anche un racconto narrativo, infatti racconta una storia, ed è persino un romanzo, dato che racconta vicende sia reali sia verosimili, ovvero vicende che potrebbero essere reali. È anche un'opera teatrale. Potremmo dire che è anche un testo enciclopedico, dato che l'opera tocca moltissimi argomenti, coma la filosofia, la storia, la teologia ecc... È anche un'opera scientifica, dato che alla base si pone la teoria aristotelica. È anche un'opera profetico-apocalittica, dato che Dante ci illustra che fine fanno i peccatori. Ed è anche un testo didascalico, dato che tutto quello che Dante condanna può essere preso come un monito per i posteri. 
+
+**Numerologia**
+Nella Divina Commedia si ripete il numero 3 con tutti i suoi multipli: 3 cantiche, divise in 33 canti ognuno, a parte l'inferno che ne ha 34, difatti un canto serve per introdurre l'opera. La somma dei canti fa 100, multiplo di 10, che alla fine non è altro che 9+1, dove 1 indica l'unicità di dio. L'inferno è, poi, strutturato in 9 gironi. I versi di ogni strofa sono 3. Anche i cerchi angelici sono 9+1, dove 1 è sempre Dio. 
+
+**La figura**
+L'elemento figurale nella Divina Commedia è molto importante, poiché Dante durante l'opera fa riferimento a personaggi anche pagani, ad esempio per Dante Apollo è solo una specie di predecessore alla figura di Dio, insomma utilizza personaggi pagani e della mitologia classica come simboli di alcune virtù cristiane. 
+
+**La lettura**
+La Divina Commedia può essere letta in 4 modi:
+- Lettura distensiva, ovvero leggere ed interpretare;
+- Lettura allegorica, ovvero una lettura dove si colgono i simboli delle sue parole;
+- Lettura morale, ovvero leggere e capire il messaggio che Dante lascia;
+- Lettura analogica, ovvero leggere e capire attraverso i versi a cosa devo tendere;
